@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development
 - 🌱 I’m completed my MCA
 - 💞️ I’m looking to collaborate on team
-- 📫 How to reach me mail id-madasamymathavank18@gmail.com
+- 📫 How to reach me mail id-madasamymathavank18@gmail.com Phone no. 6383197963
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
